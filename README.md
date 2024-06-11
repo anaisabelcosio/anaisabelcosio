@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently learning data analytics with the goal of using these skills in the payments and financial industry. <br>
+I'm currently improving my data analytics skills with the goal of using these skills in the payments and financial industry. <br>
 Ask me about payments and FinTech
 
 
