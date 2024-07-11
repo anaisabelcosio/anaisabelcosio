@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently looking into the convergence of data, payments and the financial industry. <br><br>Ask me about payments and FinTech
+I'm currently looking into the convergence of data, payments, and the financial industry. <br><br>Ask me about payments and FinTech
 
 
 ## 🌐 Socials:
